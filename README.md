@@ -11,3 +11,10 @@ I graduated from the University of Texas at Austin in Pure Mathematics. I like t
 "Open up your eyes, look within. Are you satisfied with the life you are living?" Bob Marley
 
 Patience is a good thing to have. Too bad I tend to lose my patience all the time. I get in a rush. Some might say I'm like an energizer bunny marching on the front lines. Beat by beat I never quit. If I have to slow down I never stop moving, and instead I'd rather go in circles. It is nice to have faith that no matter where we are as people that we have faith that we will be where we want to be. That and everything is going to be okay. Bob Marley was on to something.  
+
+## Off the Bridge
+"You miss 100% of the shots you don't take."
+
+If you read this take a risk today. Or else.
+
+I'm not going to lie taking a risk is tough. It is like jumping off a bridge. It builds up into that moment until you jump. Thinking too long can force you to back down. Poor execution can make you look like a fool. However the more we fail the more we learn. It is simple physics. 
