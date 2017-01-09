@@ -18,3 +18,13 @@ Patience is a good thing to have. Too bad I tend to lose my patience all the tim
 If you read this take a risk today. Or else.
 
 I'm not going to lie taking a risk is tough. It is like jumping off a bridge. It builds up into that moment until you jump. Thinking too long can force you to back down. Poor execution can make you look like a fool. However the more we fail the more we learn. It is simple physics. 
+
+## Financial Calories
+"Don't look forward, don't look backwards."
+
+I was thinking today that it would be a strange society if we had to buy calories. Now this might not make any sense at first, but what I mean is that in order to purchase food you pay in calorie tickets. Then calorie tickets could be purchased by a 3rd source, namely a government. It would help regulate health in a society. For example, if someone wanted to buy a 100 calorie bag of chips they would have to use equivalent of 100 calorie tickets. Also if this fantasy did exist one could be awarded calorie tickets for working out or perhaps some other activities.
+
+## Happiness
+"Be so good they can't ignore you." Steve Martin
+
+A lot of the time I forget to be happy. It sounds silly, but it is the truth. Sometimes happiness is tough to find, since its not a tangeable thing. However, sometimes it is just that easy. I find that when I use the 5 senses, I am blessed to have as a human to have, I find myself obtainig happiness easier. I challenge you to try it whenever you are feeling down. Really observe something, feel something, smell something, or listen to nature take its course. In the end our opinion is the only one that matters about ourselves, and we are in control of our own happiness.
