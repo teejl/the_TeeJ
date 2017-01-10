@@ -28,3 +28,13 @@ I was thinking today that it would be a strange society if we had to buy calorie
 "Be so good they can't ignore you." Steve Martin
 
 A lot of the time I forget to be happy. It sounds silly, but it is the truth. Sometimes happiness is tough to find, since its not a tangeable thing. However, sometimes it is just that easy. I find that when I use the 5 senses, I am blessed to have as a human to have, I find myself obtainig happiness easier. I challenge you to try it whenever you are feeling down. Really observe something, feel something, smell something, or listen to nature take its course. In the end our opinion is the only one that matters about ourselves, and we are in control of our own happiness.
+
+## Breathless
+"In the end, it's not going to matter how many breaths you took, but how many moments took your breath away."
+
+After I graduated from my undergraduate degree I was a little bummed out. I was bummed out becuase I wouldn't be apart of a university. I would no longer have access to the many resources for free. No more study groups, cute ladies, and old geezers. No more knockin back beers and watching jeopardy with my roommate. Without this what else is left?
+
+Turns out it isn't the end. It never is. Even though I might be moving on to another phase of my life it doesn't mean I have to change who I am. I still can learn. I still can do all of those things I did before. I can do them better than before. In the end we can't let the chaos of our life's change let us lose the best part of us. 
+
+Also when we move on we have to accept that it is the best for us. That we are choosing to do it. We are in control of our choas, not the other way around.
+
