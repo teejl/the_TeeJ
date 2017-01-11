@@ -38,7 +38,7 @@ Turns out it isn't the end. It never is. Even though I might be moving on to ano
 
 Also when we move on we have to accept that it is the best for us. That we are choosing to do it. We are in control of our choas, not the other way around.
 
-I Spy
+## I Spy
 "Live in the now."
 
 The detail it has is unexplainable. The longer I look the more I understand it. Completely random, but true. It is not false, for if it was I could not see it. Flat. Brown. Smooth. It feels soft, or is it my fingers. Sliding my fingers over it makes no sense. What it looks like makes no sense. Why do I have this object in front of me? Why am I able to even feel or see this objects? Who cares. I can. I am more powerful since I can. And for a moment nothing mattered.
