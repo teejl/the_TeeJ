@@ -42,3 +42,10 @@ Also when we move on we have to accept that it is the best for us. That we are c
 "Live in the now."
 
 The detail it has is unexplainable. The longer I look the more I understand it. Completely random, but true. It is not false, for if it was I could not see it. Flat. Brown. Smooth. It feels soft, or is it my fingers. Sliding my fingers over it makes no sense. What it looks like makes no sense. Why do I have this object in front of me? Why am I able to even feel or see this objects? Who cares. I can. I am more powerful since I can. And for a moment nothing mattered.
+
+## Genius
+"Everybody is a genius. But if you judge a fish by its ability to climb a tree it will live it's whole life beliving it is stupid."
+
+Would you rather live your whole life feeling you are stupid, but actually be a "genius" in whatever you do. Or would you rather feel like a genius, but actually be "stupid" in whatever you do. I coin the words "genius" and "stupid" since they are subjective.
+
+To truely grow we must feel uncomfortable. To be smart we must feel dumb. To be strong we must feel weak. And what comes after the struggle is up to us. 
