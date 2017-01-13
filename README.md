@@ -49,3 +49,9 @@ The detail it has is unexplainable. The longer I look the more I understand it. 
 Would you rather live your whole life feeling you are stupid, but actually be a "genius" in whatever you do. Or would you rather feel like a genius, but actually be "stupid" in whatever you do. I coin the words "genius" and "stupid" since they are subjective.
 
 To truely grow we must feel uncomfortable. To be smart we must feel dumb. To be strong we must feel weak. And what comes after the struggle is up to us. 
+
+## Ugly Truth
+"Nature is pleased with simplicity."
+
+The idea of a good picture to some people is a smile with a good outfit. But what does this picture tell? The truth isn't always smiles and nice outfits. Is the truth really so bad? Plus there is something creepy about smiles. The best picture is the one of reality. The one that tells a story. Capturing the true moment.
+
