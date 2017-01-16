@@ -55,3 +55,10 @@ To truely grow we must feel uncomfortable. To be smart we must feel dumb. To be 
 
 The idea of a good picture to some people is a smile with a good outfit. But what does this picture tell? The truth isn't always smiles and nice outfits. Is the truth really so bad? Plus there is something creepy about smiles. The best picture is the one of reality. The one that tells a story. Capturing the true moment.
 
+## Rough Patch
+"When everything goes wrong, that's when adventure starts."
+
+I'm not the best with relationships. I find myself in similar shoes alot of the times. Despite my happiness, I can't seem to help the other person find their happiness. It beats me up inside becuase life is meaningless without happiness.
+
+I often find myself in relationships where the other person is unhappy. I feel selfish for being happy whenever it happens. A wise man told me that a question to ask every relationship is "are you happier together, or seperate?" a good rule of thumb to live by. Is it the case where I would be happier with her, and she would be happier alone? I think it comes down to my investment into the relationship. I think when one person invests more time into the relationship than another person it can become stressful for them. They feel forgotten. In order to truly love someone, one must want the loved one to be happy.
+
