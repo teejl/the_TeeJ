@@ -62,3 +62,7 @@ I'm not the best with relationships. I find myself in similar shoes alot of the 
 
 I often find myself in relationships where the other person is unhappy. I feel selfish for being happy whenever it happens. A wise man told me that a question to ask every relationship is "are you happier together, or seperate?" a good rule of thumb to live by. Is it the case where I would be happier with her, and she would be happier alone? I think it comes down to my investment into the relationship. I think when one person invests more time into the relationship than another person it can become stressful for them. They feel forgotten. In order to truly love someone, one must want the loved one to be happy.
 
+## Reach Further
+"Shoot for the Moon. Even if you miss, you'll settle among the stars."
+
+Every once in a while we sell ourself short. Yes it sucks. I made a motto to keep rising. I have stayed true to that motto, and I feel I'm on the right path now. The path to the top of the ladder, nay to the next step of the ladder. When I reach the top I won't exactly know. Perhaps there is no top. Regardless I'm here to find out. I must push further. 
