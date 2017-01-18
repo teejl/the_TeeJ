@@ -66,3 +66,8 @@ I often find myself in relationships where the other person is unhappy. I feel s
 "Shoot for the Moon. Even if you miss, you'll settle among the stars."
 
 Every once in a while we sell ourself short. Yes it sucks. I made a motto to keep rising. I have stayed true to that motto, and I feel I'm on the right path now. The path to the top of the ladder, nay to the next step of the ladder. When I reach the top I won't exactly know. Perhaps there is no top. Regardless I'm here to find out. I must push further. 
+
+## Missing Belt
+"Excuses are the bricks that build a house of failure."
+
+I lost my belt today. It was like family. I have no idea where he could be. He was such a nice belt too. He couln't have ran away, no that's not his personality. He was loyal, always there whenever I needed him. Now I am without him. No more perfect size pants. No more rushing to restroom and barely making it. No more spanking for my little brother. Life is just not the same. Belt, where ever you might be out there, just know I am coming for you.  
