@@ -71,3 +71,7 @@ Every once in a while we sell ourself short. Yes it sucks. I made a motto to kee
 "Excuses are the bricks that build a house of failure."
 
 I lost my belt today. It was like family. I have no idea where he could be. He was such a nice belt too. He couln't have ran away, no that's not his personality. He was loyal, always there whenever I needed him. Now I am without him. No more perfect size pants. No more rushing to restroom and barely making it. No more spanking for my little brother. Life is just not the same. Belt, where ever you might be out there, just know I am coming for you.  
+
+## Something 
+
+Sometimes its nice to do nothing.
