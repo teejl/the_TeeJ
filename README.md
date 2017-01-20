@@ -75,3 +75,14 @@ I lost my belt today. It was like family. I have no idea where he could be. He w
 ## Something 
 
 Sometimes its nice to do nothing.
+
+## Addictions
+"One step at a time. One hour at a time. One day at a time."
+
+I'm finding out I'm addicted to math. While on the other hand one of my relatives is also struggling with an addiction. He has chosen to go into rehab to become a better person. I'm finding out addictions are a very strange thing. 
+
+I understand the ambition to feel good, but it is surprising on the things people will do to feel good. I guess what stops me from following the same path is 1) I don't have a source 2) I don't want to be dependent on objects. 
+
+Happiness goes hand in hand with unhappiness. I understand that a person cannot feel optimum happiness without felling some unhappiness. However, I do beleive a person can coast their happiness. By this I mean having a close to average amount of happiness throughout the whole day. Overall I think the ladder yeilds more happiness, and this is my reasoning: Any unhappiness can corrupt all of the happiness no matter how strong. In fact, the stronger the happiness I think makes the unhappiness even worse since they are being take away from it. For example, it is much more enjoyable to jog a mile than walk and sprint in the same amount of time.
+
+I mainly coast my happiness with Basketball, Mathematics, and Friends.  
