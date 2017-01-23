@@ -86,3 +86,9 @@ I understand the ambition to feel good, but it is surprising on the things peopl
 Happiness goes hand in hand with unhappiness. I understand that a person cannot feel optimum happiness without felling some unhappiness. However, I do beleive a person can coast their happiness. By this I mean having a close to average amount of happiness throughout the whole day. Overall I think the ladder yeilds more happiness, and this is my reasoning: Any unhappiness can corrupt all of the happiness no matter how strong. In fact, the stronger the happiness I think makes the unhappiness even worse since they are being take away from it. For example, it is much more enjoyable to jog a mile than walk and sprint in the same amount of time.
 
 I mainly coast my happiness with Basketball, Mathematics, and Friends.  
+
+## Shiny Object Syndrome
+"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime.'
+
+I have been chasing too many dreams. I need to cut the excess out of my life and make it simple once more. A simple life is easy and enjoyable. I want to be a Data Scienties. I want to be a Student, a teacher, an actuary, a mathematician, a boyfriend, and a basketball player. No TeeJ you can't do all of these things and be happy/successful at all of them. So instead I have cut them out. Or most of them and I am left with being a mathmatician, a boyfriend, an actuary, and a guy trying to enjoy his activities/friends. My priorities are aligned. My schedule is flexable. My life is relaxed. 
+
