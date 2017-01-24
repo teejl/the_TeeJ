@@ -92,3 +92,8 @@ I mainly coast my happiness with Basketball, Mathematics, and Friends.
 
 I have been chasing too many dreams. I need to cut the excess out of my life and make it simple once more. A simple life is easy and enjoyable. I want to be a Data Scienties. I want to be a Student, a teacher, an actuary, a mathematician, a boyfriend, and a basketball player. No TeeJ you can't do all of these things and be happy/successful at all of them. So instead I have cut them out. Or most of them and I am left with being a boyfriend, an actuary/mathematician, and a guy trying to enjoy his activities/friends. My priorities are aligned. My schedule is flexible. My life is relaxed. 
 
+## Attraction
+"You create your thoughts, your thoughts create your intentions, and your intentions create your reality." 
+
+I find the art of attraction quite strange. It is weird that we as people are attracted to one another, and actually unattracted to one another. It is something that is unexplainable. For instance, take a girl you have a crush on or your girlfriend. The first time you saw that person it was like... wow. For some reason they have something appealing. Something that causes you to not look away. Something that pulls in all of your attention. And in the end it is all subjective.
+
