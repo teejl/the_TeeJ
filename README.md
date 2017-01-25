@@ -97,3 +97,10 @@ I have been chasing too many dreams. I need to cut the excess out of my life and
 
 I find the art of attraction quite strange. It is weird that we as people are attracted to one another, and actually unattracted to one another. It is something that is unexplainable. For instance, take a girl you have a crush on or your girlfriend. The first time you saw that person it was like... wow. For some reason they have something appealing. Something that causes you to not look away. Something that pulls in all of your attention. And in the end it is all subjective.
 
+## Upward Expectation
+"The world makes way for the man who knows where he is going."
+
+Having a plan and sticking to it can be the hardest part to succeed. It is why Hitler was able to accomplish what he did. Although cruel he did big things. It is possibly the reason why Trump was able to become president and possibly do what he said he was going to do. It makes me fear what could happen in the future. Trump is trying to build a wall, cut off free trade, and take away health care. What is this man trying to accomplish? Where does he see us in five years? The world is making way for him regardless of what happens. I fear that what he is doing is going to change the world in a negative way. Similar to losing a finger. Before we choose which finger, let's grab some popcorn and watch what happens next.
+
+
+
