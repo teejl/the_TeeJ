@@ -102,5 +102,7 @@ I find the art of attraction quite strange. It is weird that we as people are at
 
 Having a plan and sticking to it can be the hardest part to succeed. It is why Hitler was able to accomplish what he did. Although cruel he did big things. It is possibly the reason why Trump was able to become president and possibly do what he said he was going to do. It makes me fear what could happen in the future. Trump is trying to build a wall, cut off free trade, and take away health care. What is this man trying to accomplish? Where does he see us in five years? The world is making way for him regardless of what happens. I fear that what he is doing is going to change the world in a negative way. Similar to losing a finger. Before we choose which finger, let's grab some popcorn and watch what happens next.
 
+## The Light
 
+I'm looking at a peice of paper with the sun's rays shining on it. But not a straight glare more of an ocean of light. It is moving from left to right. Its path is as unpredictable as its beauty. Just free to go where it pleases. Constantly moving, stopping for nobody. 
 
