@@ -106,3 +106,7 @@ Having a plan and sticking to it can be the hardest part to succeed. It is why H
 
 I'm looking at a peice of paper with the sun's rays shining on it. But not a straight glare more of an ocean of light. It is moving from left to right. Its path is as unpredictable as its beauty. Just free to go where it pleases. Constantly moving, stopping for nobody. 
 
+## My Bladder
+
+I am not sure if I have already mentioned how small my bladder is. It is ridiculous. I literally have to go to the restroom 3 times per hour some days. There actually was a time that I had to go back to the rest room while walking back from the rest room. Maybe there is something wrong with it. Nah I doubt it, I'm awesome.
+
