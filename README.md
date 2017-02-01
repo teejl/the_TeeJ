@@ -110,3 +110,7 @@ I'm looking at a peice of paper with the sun's rays shining on it. But not a str
 
 I am not sure if I have already mentioned how small my bladder is. It is ridiculous. I literally have to go to the restroom 3 times per hour some days. There actually was a time that I had to go back to the rest room while walking back from the rest room. Maybe there is something wrong with it. Nah I doubt it, I'm awesome.
 
+## Flashing Red and Blue
+"Life is not a matter of having a good hand, but playing a poor hand well."
+
+Today I was driving to work and of course a cop puts on his lights behind me. The first thing that went through my mind was who is he going to pull over now? I have always heard he picks on the weakest link, so I wasn't about to pull over to the right lane where he was driving. That would be like taking a bullet for a stranger I don't know. A stranger who thought his outdated hunk o metal was faster than my sweet slick speedster. Instead I stayed in my lane away from the cop, and he passed me. Sometimes the game is all about confidence. Today I won. 
