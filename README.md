@@ -119,3 +119,11 @@ Today I was driving to work and of course a cop puts on his lights behind me. Th
 "If you do not stand for something, you will fall for anything."
 
 I realize that I need to stand up for what I love doing. I need to live for my passion. To be more clear I need to find the thing that I  am willing to give up short term pleasure over. One thing I find short term pleasure in is video games. I always love playing video games/ puzzles. It is who I am since I am a mathematician. However there has only been one thing I have had the ambition to give up video games for: learning math. I love to learn math and I need to follow my passion. When I retire I hope I never lose my passion to learn math without replacing it by something else that is just as awesome. 
+
+## Webpage
+"Work hard dream big."
+
+I have been brainstorming about remaking my GitHub. It would be nice to try to create my own website. If I were to create this hypothetical website I would have to have a homepage and side tabs. I think I would format it into the following tabs:
+Homepage (the_TeeJ) the about me.
+The side tabs would be labeled respectively (the_Mathematician, the_Programmer, the_Books, and other ideas I think of).
+Some other ideas I have thought about including are statistics, however I have not developed the statistic skills to fully develop my own tab. In the programmig tab I want to complete SPOJ problems while the mathematician tabs I can write the answers to the mathematic books I read. This is just a work in progress and I want to use GitHub until I decide whether to build this website or not. 
