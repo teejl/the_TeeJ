@@ -127,3 +127,8 @@ I have been brainstorming about remaking my GitHub. It would be nice to try to c
 Homepage (the_TeeJ) the about me.
 The side tabs would be labeled respectively (the_Mathematician, the_Programmer, the_Books, and other ideas I think of).
 Some other ideas I have thought about including are statistics, however I have not developed the statistic skills to fully develop my own tab. In the programmig tab I want to complete SPOJ problems while the mathematician tabs I can write the answers to the mathematic books I read. This is just a work in progress and I want to use GitHub until I decide whether to build this website or not. 
+
+## Redefined
+"Leadership isn't about being great, it is about enabling others to be great." 
+
+Who are you? It is a question that is hard to answer. I am human. Yes, a hard question to answer. How we define ourself is how we carry ourself. I like to think somedays that I am a computer programmer. Somedays a mathematician. Others a goof. However nothing really defines me. So how does one classify who they are in one sentence: you make your own definition. So I conclude with my answer to this question. Who are you? I AM TEEJ! An answer so simple, yet so complex. In a professional sense it is a lack of information. In a casual experience it is a lack of experience. Instead this is an answer that one has to obtain their own view, since it is I who will never be able to tell you who I am or what I will mean to you in the future. But I can tell you I AM TEEJ!
