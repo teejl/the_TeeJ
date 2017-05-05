@@ -153,4 +153,10 @@ One of my buddies in college, a great guy, introduced me to writing. At first I 
 
 It is insane how a person's life can change overnight for the better or the worse. For me my life has changed overnight. I was struggling to be able to do big things and make a difference in the world. Finding a purpose so to say. Minutes before finding my purpose I doubted myself. I felt powerless. And no longer than an hour later my world completely changed. I don't believe in sudden change, but I do believe in checkpoints. Whenever a person does something great, and keeps doing something great eventually he will aquire what one might call success. Nonethelss I am excited for my new journey. I am excited to take the new path I doubted could exist.
 
+##Let Them Know
+"My mind is telling me no, but my body my body is telling me yes."
+A song somewhere in the world.
 
+I am going to admit it I have failed. I have failed at letting the world know who I am and how I feel about things. Now this might sound crazy to hear becuase alot of the time nobody cares to hear others opinions. At the end of the day they are irrelevant. However whenever it is someone close, then it is much different. With someone close we share feeling, moments, and stress. I have failed on my close friends and girlfriend because I can't speak up on how I feel about things. To be honest I didn't completely fail on my friend. It felt so wierd because I called him out. I felt so nervous, but through the end we became closer. Conflict sometimes puts two people on the same page. It is like a bump in the road. It might make a big noise, but once the noise is over everything is back to normal. Most of the time better.
+
+Where I really failed was whenever I wasn't straight forward about my feelings. Whenever I am not straight forward about my feelings I tend to change my mind last minute. But now that it has been done how can I prevent things like this from happening again? Speak up? Write more? It gets very confusing. I wish I had the wisdom to these problems. Perhaps I'll master them through parenthood. 
