@@ -153,7 +153,7 @@ One of my buddies in college, a great guy, introduced me to writing. At first I 
 
 It is insane how a person's life can change overnight for the better or the worse. For me my life has changed overnight. I was struggling to be able to do big things and make a difference in the world. Finding a purpose so to say. Minutes before finding my purpose I doubted myself. I felt powerless. And no longer than an hour later my world completely changed. I don't believe in sudden change, but I do believe in checkpoints. Whenever a person does something great, and keeps doing something great eventually he will aquire what one might call success. Nonethelss I am excited for my new journey. I am excited to take the new path I doubted could exist.
 
-##Let Them Know
+## Let Them Know
 "My mind is telling me no, but my body my body is telling me yes."
 A song somewhere in the world.
 
