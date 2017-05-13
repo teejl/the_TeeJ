@@ -160,3 +160,36 @@ A song somewhere in the world.
 I am going to admit it I have failed. I have failed at letting the world know who I am and how I feel about things. Now this might sound crazy to hear becuase alot of the time nobody cares to hear others opinions. At the end of the day they are irrelevant. However whenever it is someone close, then it is much different. With someone close we share feeling, moments, and stress. I have failed on my close friends and girlfriend because I can't speak up on how I feel about things. To be honest I didn't completely fail on my friend. It felt so wierd because I called him out. I felt so nervous, but through the end we became closer. Conflict sometimes puts two people on the same page. It is like a bump in the road. It might make a big noise, but once the noise is over everything is back to normal. Most of the time better.
 
 Where I really failed was whenever I wasn't straight forward about my feelings. Whenever I am not straight forward about my feelings I tend to change my mind last minute. But now that it has been done how can I prevent things like this from happening again? Speak up? Write more? It gets very confusing. I wish I had the wisdom to these problems. Perhaps I'll master them through parenthood. 
+
+## Axioms of Professionalism
+
+Hello,
+
+I would like to write to you the axioms of professionalism. The rules to follow in the workplace. 
+Let me start:
+
+1. Do not say anything negative.
+  People do not have time for negativity. It is unproductive.
+  
+2. Do not do the same task twice without becoming better.
+  Each task should be a project. A way to make it quicker. A way to learn more.
+
+3. Learn from others.
+  Everyone is a genius. Find out how.
+  
+4. Respond ASAP.
+  As soon as you receive a message take care of it. People are the number one asset.
+  
+5. Reread and Rewrite.
+  Nothing is completely finished. It can always be documented better. (More organized, quicker, more efficient)
+  
+6. Be better than your supervisor.
+  Create a legacy. A long line of brilliance.
+  
+7. Nothing is a final draft unless it is 100% accuracy.
+  A final draft is perfect. Needs to be perfect.
+  
+Thank you for listening to what I had to say. I hope I did not forget to include any other axioms. 
+
+Sincerely,
+TJL
