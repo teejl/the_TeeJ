@@ -193,3 +193,18 @@ Thank you for listening to what I had to say. I hope I did not forget to include
 
 Sincerely,
 TJL
+
+## Financially Responsible
+
+I would like to take a second to bring up financial responsibility. I assume that most people try to live within their means. However a lot of us want to be able to live above our means. To be able to do anything we want no matter how ridiculous it is. In order to do this we have to be financially responsible. We have to use our money for the important things in life. If you try to buy everything surely you will go broke. It is like choosing your friends. You can only spend your time with so many people. 
+
+Time is another resource we must be aware of. Time and money are the decisions we make that enable us to become ourselves. It is just because how the economy works. I mean surely you can get away without money, but the lifestyle is not one I want to talk about. Also I would like to mention that I am not talking about a lifestyle with an overabundance of money either. Just the average Joe. I guess even that is ambigious. Rich and poor are relative to the person. 
+
+Nevertheless, we need to harvest our time and money to maintain an adventure. It is like coasting. Sailing if you will. Don't lean too much to one side or the other. That doesn't mean don't lean at all. The direction is the one of your choosing. But just don't tip over. Becuase once you get wet you can't get unwet. Now what does it mean to get wet? It means to spend the money you don't have. Don't spend the money you don't have unless it is leverage for a great opportunity. By this I mean student loans are good and car loans/ mortgages are bad. 
+
+At the same time you should be the bank. Don't expect that banks are the only ones who can give out loans. Bonds and stocks and what not are esentially the citizen's form of giving business loans. But be careful. 
+
+Mathematically speaking you can get a loan for $10. Let us say that you will owe $10.30 at the end of the year. Then you can buy a $10 hat for $10.30. Not to mention to make that $10 you were taxed by the government from your income that you made from your job and once again for the purchase. That or you can invest your $10 for $10.30 at the end of the year, and realize that you have more money to invest next year and didn't have to spend the $10. It might not seem like a lot, but once we build a great chunk it will grow so fast that we can live off of it. For example, let us say we ended up with $10,000. In the same scenario we could buy a $10,000 car for $10,300 orrrr we could have $300 extra dollars to save next year. Staying at 3% interest how much would we need to save to make $20,000 a year? About $666,666.67. Hmmmm that isn't so bad... So the goal is to keep the stash growing!! 
+
+Now this might sound crazy, but what if you children could not withdraw the money. Instead that received the income. It wouldn't take too long to double the money. In fact if the child received it whenever they were born they could probably double it by 18. So the legacy could keep going, and then would your family ever have to work again? I guess it depends on how you live.
+
