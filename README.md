@@ -208,3 +208,12 @@ Mathematically speaking you can get a loan for $10. Let us say that you will owe
 
 Now this might sound crazy, but what if you children could not withdraw the money. Instead that received the income. It wouldn't take too long to double the money. In fact if the child received it whenever they were born they could probably double it by 18. So the legacy could keep going, and then would your family ever have to work again? I guess it depends on how you live.
 
+## Fork in the Road
+
+It seems that as I go through my daily routine I crave something more. More adventure, more risk, more heartbeats. Most of the lack of excitement is coming from the fact that I live in a city with the median age 7 years older than I am. I am in a place where people raise children and retire. I'm sure if you took the variance of the ages it would be very high. This is the opposite of what I desire from a city. From a place I call home.
+
+It is terrible because I love my job. I love my team. Some of the greatest people I have been surrounded by, and I am blessed to be able to learn from them. I have noticed I am coming close to the 2 years of experience mark. This is a huge opportunity for me to move to a city where the variance of the age is lower and the median age is closer to mine. I know this sounds a little insane to judge a city based on the age of the people. Age is just a number. But it does make a difference.
+
+I have had a down to earth conversation with my girlfriend multiple times, and we want to take the next step by going to an exciting city. We have our eye on a few great locations: Chicago, Portland, San Francisco, Austin, and New York City. I have no idea what is next for me. I am excited though. I can't wait to take the next leap. To raise my heart rate. To find more risk. To have an adventure.
+
+As we live life we can continue to make the "safe" choices and be in a very comfortable situation. However too much comfort neglects the challenges we face as people. The challenges that cause us to grow and dream.
