@@ -217,3 +217,19 @@ It is terrible because I love my job. I love my team. Some of the greatest peopl
 I have had a down to earth conversation with my girlfriend multiple times, and we want to take the next step by going to an exciting city. We have our eye on a few great locations: Chicago, Portland, San Francisco, Austin, and New York City. I have no idea what is next for me. I am excited though. I can't wait to take the next leap. To raise my heart rate. To find more risk. To have an adventure.
 
 As we live life we can continue to make the "safe" choices and be in a very comfortable situation. However too much comfort neglects the challenges we face as people. The challenges that cause us to grow and dream.
+
+## Motivation
+
+Everyone has different a different source of motivation. Some that come to mind are money, ability to provide for the family, intellectual curiosity, to help others, and many others. I am having trouble finding mine. I do know I love solving puzzles though. 
+
+In college it seemed like I found that I love solving puzzles. It is my life passion, and the puzzles I solved were strictly intellectual driven. It didn't matter how much money I made from each problem. It just mattered that I understood. There was a self merit I conquered when solving these problems. I was financially free and completely distracted from life.
+
+After graduating college I was 40k in debt. I couldn't ignore such a thing, so my new motivation was gaining control of my life once again. The feeling I thought I had while I was in college. The feeling of being able to walk into a coffee shop open a book and start crunching away at math problems for 4-6 hours straight. The feeling of control and self competition to understand.
+
+I have found myself moving towards Business. More specifically finding impacts of data, and there have been so many admirable problems I have solved/attempted to solve. I still have the passion for puzzle solving, but now I try to align my puzzle solving with generating revenue to pay off my debt, and hopefully build a fortune to be financially free again. I can't help but notice the second motive of generating revenue is a distraction to my puzzle solving. That at the end of the day if my puzzle solving doesn't make a business impact it serves no purpose. As all stages in life has its ups and downs this one can take a toll.
+
+I absolutely love solving puzzles, and as I move deeper into data analytics there are two career paths that open up: Data Scientist and Business Analyst. Wow two great options! But the one thing that boggles me down is that I will be at the bottom of the chain. In a way I want both. I want to be able to crunch the algorithms to make the business decisions and rinse and repeat. The business analyst although seems like they make more of a business impact, they are simply presenting the ideas to be made. While the data scientist has all these fancy tools, they can move far away from the actual goal (the puzzles to be solved can bring no business impact). 
+
+So I will eventually have to a decision one day. Do I want to comprimise my puzzle solving for the business?
+
+I have this dream that one day I can be the person that stocks up his own computing service and provide the end to end service from Data storage and cryptography all the way to making an impact in the world. This day and age data is starting to become an asset. It would be interesting to invest in data, and to see what can be possible. That or I can go back to my college days of financial freedom to spend my days solving puzzles.
