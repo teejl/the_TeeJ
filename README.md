@@ -234,12 +234,12 @@ So I will eventually have to a decision one day. Do I want to comprimise my puzz
 
 I have this dream that one day I can be the person that stocks up his own computing service and provide the end to end service from Data storage and cryptography all the way to making an impact in the world. This day and age data is starting to become an asset. It would be interesting to invest in data, and to see what can be possible. That or I can go back to my college days of financial freedom to spend my days solving puzzles.
 
-Lets take a walk with Fred
+## Lets take a walk with Fred
 
-  Fred is an eveverday man. Actually he is the everyday man, and doesn't realize it. He is caught so far in the pack that he does not realize he is in the pack. Nonetheless, Fred is like most typically everyday man and wants more for himself. Okay let's do it Fred.
+  Fred is an eveverday man. Actually he is the everyday man, and doesn't realize it. He is caught so far in the pack that he does not realize he is in the pack. Nonetheless, Fred is like most typically everyday man and wants more for himself. Okay let's help Fred strive for more.
   
-  Fred stops eating sweets. Fred stops getting expensive haircuts. No more car, instead he rides a bike. Milk and Butter? Nope, beans and potatos. It's okay though he still has his oatmeal. He still has his gym membership. His friends and family haven't left him, so he still has them. Okay so now Fred is making a leap, but he still has not reached the next level. 
+  Fred stops eating sweets gaining control of his blood sugar levels. No more car, instead he rides a bike helping increase his everyday energy. Milk and Butter? Nope, beans and potatos, so he saves money and has more discipline. It's okay though he still has his oatmeal. He still has his gym membership. His friends and family haven't left him, so he still has them. Okay so now Fred is making a leap, but he still has not reached the next level. 
   
-  Why keep going? The less he has the more he realizes that he doesn't need more. Actually his ambitions to be rich has a clear path. He has to say no to expensive habits and be patient. If that doesn't outweigh the costs of being rich then he will make it. If he wants he can become rich. But who would really want that?
+  Why keep going? The less he has the more he realizes that he doesn't need more. Actually his ambitions to be rich has a clear path. He has to say no to expensive habits and be patient. If that doesn't outweigh the costs of being rich then he will make it. If he wants he can become rich. But who would really want that? There has to be a bigger purpose. That's when Fred makes the decision of what the purpose of his life is, and moves in that direction.
   
   
