@@ -244,10 +244,10 @@ I have this dream that one day I can be the person that stocks up his own comput
   
 ## There Just Is
 
-  I don't beleive that there is a such thing as right or wrong. It is all the perspective of the person. Often we see the bad guy in movie films, and since our beliefs contrast with their desires we see them as the bad guy. We assume they are wrong. However that is arbitrary, since life isn't build off of right and wrong. It just is. Every action has a price that will need to be paid in advance or afterwards.
+  I don't beleive that there is a such thing as right or wrong. It is all the perspective of the person. Often we see the bad guy in movie films, and since our beliefs contrast with their desires we see them as the bad guy. We assume they are wrong. However that is arbitrary, since life isn't build off of right and wrong. It just is. Every action has a price that will need to be paid before or after.
   
   Now you might say well that is a little dark, TeeJ. However I think it is anything but dark. Since life just is we can craft it and make our own difference. We don't craft the world to be right or perfect, but instead our vision of what we think would be a better place. This is what setting dreams and making a difference in the world is about.
   
-  However not everyone will agree with your difference. So one cannot lose faith in their dreams. It is not bad to change the vision, but to give up is very horrible. People used to kill each other over their vision of a better world. I pray that everyones fight to make the world in their eyes the best place they can imagine never dies.
+  However not everyone will agree with your difference. So one cannot lose faith in their dreams. It is not bad to change the vision, but to give up is very horrible. People used to kill each other over their vision of a better world. I pray that everyone's fight to make the world in their eyes the best place they can imagine never dies.
   
   Find your dream. Find your pack. Make a difference.
