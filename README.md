@@ -242,4 +242,12 @@ I have this dream that one day I can be the person that stocks up his own comput
   
   Why keep going? The less he has the more he realizes that he doesn't need more. Actually his ambitions to be rich has a clear path. He has to say no to expensive habits and be patient. If that doesn't outweigh the costs of being rich then he will make it. If he wants he can become rich. But who would really want that? There has to be a bigger purpose. That's when Fred makes the decision of what the purpose of his life is, and moves in that direction.
   
+## There Just Is
+
+  I don't beleive that there is a such thing as right or wrong. It is all the perspective of the person. Often we see the bad guy in movie films, and since our beliefs contrast with their desires we see them as the bad guy. We assume they are wrong. However that is arbitrary, since life isn't build off of right and wrong. It just is. Every action has a price that will need to be paid in advance or afterwards.
   
+  Now you might say well that is a little dark, TeeJ. However I think it is anything but dark. Since life just is we can craft it and make our own difference. We don't craft the world to be right or perfect, but instead our vision of what we think would be a better place. This is what setting dreams and making a difference in the world is about.
+  
+  However not everyone will agree with your difference. So one cannot lose faith in their dreams. It is not bad to change the vision, but to give up is very horrible. People used to kill each other over their vision of a better world. I pray that everyones fight to make the world in their eyes the best place they can imagine never dies.
+  
+  Find your dream. Find your pack. Make a difference.
