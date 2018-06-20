@@ -238,9 +238,11 @@ I have this dream that one day I can be the person that stocks up his own comput
 
   Fred is an eveverday man. Actually he is the everyday man, and doesn't realize it. He is caught so far in the pack that he does not realize he is in the pack. Nonetheless, Fred is like most typically everyday man and wants more for himself. Okay let's help Fred strive for more.
   
-  Fred stops eating sweets gaining control of his blood sugar levels. No more car, instead he rides a bike helping increase his everyday energy. Milk and Butter? Nope, beans and potatos, so he saves money and has more discipline. It's okay though he still has his oatmeal. He still has his gym membership. His friends and family haven't left him, so he still has them. Okay so now Fred is making a leap, but he still has not reached the next level. 
+  Fred stops eating sweets gaining control of his blood sugar levels. No more car, instead he rides a bike helping increase his everyday energy. Milk and Butter? Nope, beans and potatos, so gains more money and discipline. It's okay though he still has his oatmeal. He still has his gym membership. His friends and family haven't left him, so he still has them. Okay so now Fred is making a leap, but he still has not reached the next level. He must continue the pace to cut down, while continuing to strive for more.
   
-  Why keep going? The less he has the more he realizes that he doesn't need more. Actually his ambitions to be rich has a clear path. He has to say no to expensive habits and be patient. If that doesn't outweigh the costs of being rich then he will make it. If he wants he can become rich. But who would really want that? There has to be a bigger purpose. That's when Fred makes the decision of what the purpose of his life is, and moves in that direction.
+  Why keep going? The less he has the more he realizes that he doesn't need more. Actually his ambitions to be rich has a clear path. He has to say no to expensive habits and be patient. If that doesn't outweigh the costs of being rich then he will make it. If he wants he can become rich. But who would really wants that? There has to be a bigger purpose. That's when Fred makes the decision of what the purpose of his life is, and moves in that direction.
+  
+  Would you rather have it all, but not use it; or use it all and have none?
   
 ## There Just Is
 
