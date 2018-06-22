@@ -253,3 +253,11 @@ I have this dream that one day I can be the person that stocks up his own comput
   However not everyone will agree with your difference. So one cannot lose faith in their dreams. It is not bad to change the vision, but to give up is very horrible. People used to kill each other over their vision of a better world. I pray that everyone's fight to make the world in their eyes the best place they can imagine never dies.
   
   Find your dream. Find your pack. Make a difference.
+
+## Breathe Decisions
+
+  Surround yourself by people you want to become. There are so many great people in the world. Of course this is all prospective of the person.
+  
+  I can often at times be so indecisive. Especially when it comes down to my profession. We spend most of our lives working, so we have to love it right? Okay so we have to at least be able to handle the ups and the downs. I've often seen doing anything for too long can make an activity grow stale. The challenge can vanish.
+  
+  Indecisiveness is solved through gut instinct. When we overthink things we go against our gut instinct, and it wastes time we could actually be doing that activity we enjoy.
