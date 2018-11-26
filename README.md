@@ -264,4 +264,4 @@ I have this dream that one day I can be the person that stocks up his own comput
   
   ## Fear and Anxiety
   
-  Our bodies natural feel something special whenever risk is involved. The chances of failing gives me somewhat of a fearful anxious feeling. This feeling is the feeling worth living for. Although at time can be overwhelming, it is usually a good indicator I am pushing myself into a new beginning where more dreams will come and more friends will be made.  
+  Our bodies naturally feel something special whenever risk is involved. The chances of failing gives me somewhat of a fearful anxious feeling. This feeling is the feeling worth living for. Although at time can be overwhelming, it is usually a good indicator I am pushing myself into a new beginning where more dreams will come and more friends will be made.  
