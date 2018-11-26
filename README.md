@@ -261,3 +261,7 @@ I have this dream that one day I can be the person that stocks up his own comput
   I can often at times be so indecisive. Especially when it comes down to my profession. We spend most of our lives working, so we have to love it right? Okay so we have to at least be able to handle the ups and the downs. I've often seen doing anything for too long can make an activity grow stale. The challenge can vanish.
   
   Indecisiveness is solved through gut instinct. When we overthink things we go against our gut instinct, and it wastes time we could actually be doing that activity we enjoy.
+  
+  ## Fear and Anxiety
+  
+  Our bodies natural feel something special whenever risk is involved. The chances of failing gives me somewhat of a fearful anxious feeling. This feeling is the feeling worth living for. Although at time can be overwhelming, it is usually a good indicator I am pushing myself into a new beginning where more dreams will come and more friends will be made.  
