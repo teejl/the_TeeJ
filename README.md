@@ -1,5 +1,11 @@
 # About TeeJ
 
+## Chicago
+"There are two days in your life. The day you turn 21, and the day you meet Trevor." Trevor Joplin.
+
+Looks like I will be moving to Chicago. I visited the city recently, and the only thing I can say is that it is great! It is a complete change of pace (no car, no family, no friends). I am excited, nervous, scared, anxious, and any other emotion you can imagine. I will admit beyond the excitement of actually moving, having to sign and break a lease simultaneously is quite expensive. If you follow my steps you should be weary of the expenses. I think it will be worth it.
+ 
+
 ## Hello world. 
 "A penny saved is a penny earned."
 
