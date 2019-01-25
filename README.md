@@ -1,5 +1,8 @@
 # About TeeJ
 
+## Just do it
+Sometimes things challenges come down to just doing them. An example is leg day. Leg day is not easy. To get the results leg day brings, you just need to do it. More thinking will not make it miraculously easy. More strategy will not somehow reveal some undiscovered truth. It is action that will bring the results, inspiration, and more importantly the looks ;).
+
 ## Pace
 "We're sprinting a marathon today boys." Justin Stone.
 
