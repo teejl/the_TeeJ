@@ -1,5 +1,12 @@
 # About TeeJ
 
+## Hello world. 
+"A penny saved is a penny earned."
+
+My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me a name like TeeJ, but they did give me the tools to get there. Sometimes I like to think I'm the only one in the world that goes by a name like TeeJ. If that was the case then my name's uniqueness would guarantee my awesomeness. 
+
+I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
+
 ## Just do it
 Sometimes challenges come down to action. An example is leg day. Leg day is not easy. To get the results leg day brings, you just need to do it. I know each rep you get closer to death, and it is not very enjoyable (or at least until it is over). More thinking will not make it miraculously easy. More strategy will not somehow reveal some undiscovered truth. It is action alone that will get the job done.
 
@@ -12,14 +19,6 @@ My manager (or technically lead analyst), a great mentor, has always showed me t
 "There are two days in your life. The day you turn 21, and the day you meet Trevor." Trevor Joplin.
 
 Looks like I will be moving to Chicago. I visited the city recently, and the only thing I can say is that it is great! It is a complete change of pace (no car, no family, no friends). I am excited, nervous, scared, anxious, and any other emotion you can imagine. I will admit beyond the excitement of actually moving, having to sign and break a lease simultaneously is quite expensive. If you follow my steps you should be weary of the expenses. I think it will be worth it.
- 
-
-## Hello world. 
-"A penny saved is a penny earned."
-
-My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me a name like TeeJ, but they did give me the tools to get there. Sometimes I like to think I'm the only one in the world that goes by a name like TeeJ. If that was the case then my name's uniqueness would guarantee my awesomeness. 
-
-I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
 
 ## Patience is a Virtue
 "Open up your eyes, look within. Are you satisfied with the life you are living?" Bob Marley
