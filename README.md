@@ -7,10 +7,11 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
 
-## Listen to the Rooster
-
+## Tribute to the Chicken
+"Cacadoodledoo!" Chicken
 ![the_Roost](images/chicken.png)
 
+I wanted to prove to not only myself, but the world that I can put a picture inside of my blog. What better picture to chose than a chicken? Chickens are the supreme wing man. They support us 100%. Whether they are giving us their eggs, their own meat, or trying to wake us up in the morning, they live their lives helping us out. Thank you chickens for your support. I also apologize that animal cruelty exists. You should get to live a happy and enjoyable life before you are sacrificed into the bellies of an obese culture.
 
 ## Just do it
 Sometimes challenges come down to action. An example is leg day. Leg day is not easy. To get the results leg day brings, you just need to do it. I know each rep you get closer to death, and it is not very enjoyable (or at least until it is over). More thinking will not make it miraculously easy. More strategy will not somehow reveal some undiscovered truth. It is action alone that will get the job done.
