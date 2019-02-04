@@ -9,7 +9,7 @@ I graduated from the University of Texas at Austin in Pure Mathematics. I like t
 
 ## Listen to the Rooster
 
-![the_Roost](images/kosher-chicken.jpg)
+![the_Roost](images/chicken.png)
 
 
 ## Just do it
