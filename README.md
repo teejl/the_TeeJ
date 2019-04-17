@@ -7,6 +7,16 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
 
+## Growing Pains
+“Never miss a good chance to shut up.” 
+― Will Rogers
+
+I have lived in Chicago for about a month and a half (give or take). It is very fun, but I am starting to miss Texas. I am missing things like: family, cheap drinks at sports bars, and friends. It is tough starting over in a distant location. It is also tough finding good prices for drinks around here.
+
+Today I realized that staring is the first sign of loneliness, or perhaps the desire for a social interaction. I find it baffling how nonverbal signs can tell the truth about how one feels, despite whatever words are said. For example, someone staring at another person might feel awkward and say "I'm sorry", however they are not sorry, but instead they want to communicate. They just don't know what to say (the social notion that communication has to be filled with words). 
+
+But not knowing what to say isn't a bad thing. Why does every conversation need words? Silence is a beautiful thing. I guess silence could be taken as "awkward" in some people's eyes. Which is a funny notion, since each person can leave the silence at any time, making the silence a beautiful thing. Silence shows that two people want to be next to each other, and they don't need words to accomplish that. In fact, words sometimes take us away from the moment instead of pulling us in.
+
 ## Focus
 
 Reading is good, not only for learning, but also for working on one's focus. The more focus the bigger things that can be accomplished.
