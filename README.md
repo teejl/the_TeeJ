@@ -7,6 +7,22 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
 
+## Chicago
+As you might not be aware of I moved to Chicago about 6 months ago. and well WOW! This place is amazing. The summers here are INSANE!! On the contrary I actually have a guilty pleasure of the snow. People here are super friendly with the occasional off scenarios. Transportation is as well amazing. I couldn't imagine a more functioning city. I am blessed to be here.
+
+## Engineer vs Scientist
+“A scientist can discover a new star, but he cannot make one. He would have to ask an engineer to do it for him.”
+–Gordon Lindsay Glegg
+
+I often ask myself which one would I find more interesting Data Engineering or Data Science? Although I'm sure I would enjoy both, this question always has burned in my mind. A question that is tough to have an answer for. Tough until we take a step back and realize one thing: Scientists discover, while engineers build. So the question of do I want to explore data or build it is a more straight forward question. This could also be misleading however, since building data requires a little exploration and vice versa. Nonetheless, I often find myself searching through data to fix it, to build something better, and to optimize the situation. What is the end goal? Are you trying to build an amazing tool to enable people to explore, or you trying to explore to discover some new insight? If you can answer this question I think you would have your answer. 
+
+Kudos to the following article for helping me understand:
+https://towardsdatascience.com/who-is-a-data-engineer-how-to-become-a-data-engineer-1167ddc12811
+
+More specifically the quote: “A scientist can discover a new star, but he cannot make one. He would have to ask an engineer to do it for him.”
+–Gordon Lindsay Glegg
+
+
 ## Growing Pains
 “Never miss a good chance to shut up.” 
 ― Will Rogers
