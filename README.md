@@ -7,6 +7,11 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
 
+## Online Certs
+I was watching a youtube about different tech occupations. One that really caught my eye was machine learning engineer. Sounds like the perfect mix between hands on problem solving and research. Often I think this means I need to shoot for a masters degree. I am at the point where if I did go masters degree I would have to go with Computer Science. I think it would benefit my background and be a lot of fun. The one catch is that I don't have to get a masters. There is this guy Daniel Bourke that I have been creeping on and he did it right. He has a bunch of different certifications in the topic that he enjoys. On top of that he has read many books and has his own youtube channel.
+
+This is the age we live in. We can advertise ourself so well with technology that the audience won't question whether you are qualified or not, but instead they will trust you from the content you have created. I pray I can learn from this mindset and influence others to do the same.
+
 ## Chicago
 As you might not be aware of I moved to Chicago about 6 months ago. and well WOW! This place is amazing. The summers here are INSANE!! On the contrary I actually have a guilty pleasure of the snow. People here are super friendly with the occasional off scenarios. Transportation is as well amazing. I couldn't imagine a more functioning city. I am blessed to be here.
 
