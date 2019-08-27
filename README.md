@@ -7,6 +7,11 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like theirs. They directly contributed by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a Problem Solver. 
 
+## Memories
+Whenever you look back on your life what do you see? For me, sometimes it is either really good moments or the alternative, almost victories and missed friendships. Yet the greatest moments that were able to be created seemed entirely unpredictable. It still blows my mind that there are times of my life it seems like I can barely remember. Maybe I am getting old, or there is some phsycological factor involved.
+
+I beleive we should strive to have more memories we remember, while at the same time not letting these sometimes overwhelmingly great memories get in the way of us moving forward.
+
 ## Online Certs
 I was watching a youtube about different tech occupations. One that really caught my eye was machine learning engineer. Sounds like the perfect mix between hands on problem solving and research. Often I think this means I need to shoot for a masters degree. I am at the point where if I did go masters degree I would have to go with Computer Science. I think it would benefit my background and be a lot of fun. The one catch is that I don't have to get a masters. There is this guy Daniel Bourke that I have been creeping on and he did it right. He has a bunch of different certifications in the topic that he enjoys. On top of that he has read many books and has his own youtube channel.
 
