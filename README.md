@@ -7,6 +7,12 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+
+## Epic Art
+I found myself this weekend checking out the Mexican Museum of art in East Pilsen (Chicago, IL). The place was definitely a culture shock, and was exactly what Frisco, TX needed. Frisco, TX is so cookie cutter; everything is brand new, untouched, and semi-perfect if not perfect. East Pilsen is built off of culture and artwork. The walls are murals.
+
+But there was one painting that stood out to me the most. A beautiful story of love and voilence. An Epic story. I could try to describe it, but instead you should just read it here: https://www.facebook.com/NationalMuseumofMexicanArt/photos/the-legends-of-popocatepetl-iztacc%C3%ADhuatls-father-sent-popocatepetl-to-war-in-oax/10152056668379600/ 
+
 ## Memories
 Whenever you look back on your life what do you see? For me, sometimes it is either really good moments or the alternative, almost victories and missed friendships. Yet the greatest moments that were able to be created seemed entirely unpredictable. It still blows my mind that there are times of my life it seems like I can barely remember. Maybe I am getting old, or there is some phsycological factor involved.
 
