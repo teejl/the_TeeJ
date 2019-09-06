@@ -7,6 +7,18 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Staircase to Heaven
+"I apologize if I stare. It's just that I'm interested."
+
+I am not too religious of a person, however I have spent some time at church and heard many of the stories. I find it strange that the idea there is this stairway to heaven. Most people assume that this stairway is going up, and that heaven is in the sky. 
+
+But why up? What makes up better than down? Whenever we die a lot of us are burried in the ground. Yet our souls want to go up and be free? This is the epitome of the american dream. The idea that the unkown is always better than the current state. And the millenials are the ones being blamed for always wanting to escape the moment. Why can't heaven be down? Being apart of everything we know and feel comfortable with. Living where all of our great and worst memories are. Being around what makes us, well us. 
+
+There is also that saying what goes up must come down. But what about going down? It takes more effort to go up then down. Shouldn't it be more difficult to come back to earth after heaven? And what makes floating in space so great? Even in Paradise Lost, Satan was banished to Choas, which was a lost place in space.
+
+Now let me just throw some ideas out there about what happens after we die. They don't have to be correct, just a creative exorcise. What if we can replay only what we know and relive our feelings and moments? Or what if we don't know what existence is after death and time slows down more and more until our last moment, and since we do not know what that moment is like we live in limbo between our last state and our almost last state (think of a converging series with the perception of time slowing down)? What if heaven does exist and we can talk to a higher being and shoot the shit for the rest of existence of our soul? What if we were never alive and we wake up from a dream? What if we are already dead? What if we reincarnated as an animal? What if we walk a staircase to heaven going down?
+
+Nobody knows. Yet we are all blessed with one life. A wise man told me "No you don't only live once, you only die once. You live everyday." You live everyday, so live everyday.
 
 ## Epic Art
 I found myself this weekend checking out the Mexican Museum of art in East Pilsen (Chicago, IL). The place was definitely a culture shock, and was exactly what Frisco, TX needed. Frisco, TX is so cookie cutter; everything is brand new, untouched, and semi-perfect if not perfect. East Pilsen is built off of culture and artwork. The walls are murals.
