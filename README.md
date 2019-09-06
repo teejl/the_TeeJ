@@ -10,6 +10,8 @@ I graduated from the University of Texas at Austin in Pure Mathematics. I like t
 ## Staircase to Heaven
 "I apologize if I stare. It's just that I'm interested."
 
+![the_Redline](images/stationheader_rd_clarkdivision.jpg)
+
 I am not too religious of a person, however I have spent some time at church and heard many of the stories. I find it strange that the idea there is this stairway to heaven. Most people assume that this stairway is going up, and that heaven is in the sky. 
 
 But why up? What makes up better than down? Whenever we die a lot of us are burried in the ground. Yet our souls want to go up and be free? This is the epitome of the american dream. The idea that the unkown is always better than the current state. And the millenials are the ones being blamed for always wanting to escape the moment. Why can't heaven be down? Being apart of everything we know and feel comfortable with. Living where all of our great and worst memories are. Being around what makes us, well us. 
