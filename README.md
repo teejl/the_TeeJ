@@ -7,6 +7,16 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Value Meal
+Fast Food can be considered one of the most dangerous things not only to America, but the world. I am guilty of getting fast food from time to time, but I am aware it is not sustainable in the long run.
+
+What really grinds my gears is people who justify "Fast food is all I can afford"... Really? Tell me how fries, that probably run for a buck fifty is cheaper than an actual potato that comes out to about seventy-five cents (probably less and you can simply microwave it almost anywhere). Tell me how a burger made from massly produced poorly treated animals (thanks to the power of the meat industry) that is not only not filling but also not going to give you any energy throughout the day is a good idea. If you cannot afford meals for your family (if so I wish you the best, and wish you didn't have to endure that) than do not buy meat. It is the only solution. It is what our ancestors have done in the past. Beans, potatos, rice, noodels, tuna, lentils, and nuts.
+
+## Make America Great Again
+If you really want to "Make America Great Again" how about we solve the problem of corruption in the Meat industry, Oil Industry, and pretty much any other money-abusive power-hungry lobby-using monopoly-owned markets? Yeah let's do that Mr. President. Immigration is the problem? Is this a joke? Everyone in this country is an immigrant, or someone in there family most likely is. And if someone in their family isn't, then someone in their family tree probably killed a lot of "Native Americans" to be one of the founding fathers.
+
+How about instead of focusing on the wrong topics like immigration, let's focus on real topics like power, money, and enabling the "Pursuit of Happiness" for everyone. Make America Great Again... Yeah that quote is just nonsense. You do not have my vote in 2020. Or ever.
+
 ## Staircase to Heaven
 "I apologize if I stare. It's just that I'm interested."
 
