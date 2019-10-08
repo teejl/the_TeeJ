@@ -8,6 +8,7 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
 ## Camping
+![Sequoia Forest](images/IMG_3814.jpg)
 I just recently got back from camping at a national park called Yosemite. WOW! It is just beautiful. Camping is absolutely one of my favorite things to do. Something about sleeping in a tent in the open world feels so freeing. 
 
 It also made me think more about my life. Two words that I feel I am lacking: appreciation and discipline. I often time live in my head, usually thinking about the future/past. I often forget to appreciate things and people in my life. Also discipline is something that everyone needs, and without it you could lose everything you have through bad decisions.
