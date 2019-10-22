@@ -7,6 +7,18 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## What do you see?
+
+Sometimes I think people lose focus of the bigger picture. Okay that might not be fair to measure other people up to my standards of what I beleive the greater good of people should be doing. Nor do I think I am perfect, but hear me out. 
+
+From time to time I will be invited (and others will invite me to go out and do things). This often raises a decision that has to be made. To go out to the event with said people or decline. Either decision should be welcomed (unless there is of course the peer pressure factor, but lets disregard that part). I have noticed some people will decline and say "I don't want to do that". Okay why? Is it that you don't want to do that event or hang out with those people?
+
+Before I moved away from my hometown I was really bad about making this decision solely based on whether I wanted to do the activity or not, completely disregarding who is inviting me. That was a huge mistake! Now I don't care what I am doing, as long as I am doing it with people I enjoy (and hopefully it doesn't break the bank, so I can continue to do it). Don't get me wrong there is the whole passionate side of life and opportunity cost where we should do what we love. These activities aren't going anywhere though. The people in our lives tend to move, move on, or get busy. It just baffles me on how picky I was.
+
+Now my two typical answers are: "Yes, lets do it!", or "I won't be able to make it.". Don't get me wrong sometimes overplanning can hurt. Sometimes I will be caught in the moment. IMO this is the best thing. Living life is the best thing, and if anything takes you away from that then well that sucks.
+
+Also since we are talking about hanging out with people, building real connections is a big deal. Non of that superficial oh this guy works for X, or can do Y, or has Z for his A, B, and Q... Okay I'm getting carried away, but there is a connection between each person. A connection of trust and understanding. It is vital to have this in order to even really meet a person.
+
 ## Camping
 ![Sequoia Forest](images/IMG_3814.jpg)
 I just recently got back from camping at a national park called Yosemite. WOW! It is just beautiful. Camping is absolutely one of my favorite things to do. Something about sleeping in a tent in the open world feels so freeing. 
