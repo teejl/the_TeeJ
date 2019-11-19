@@ -8,7 +8,7 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
 ## Do you like riddles?
-I love riddles. Yes, the are awesome. Guess Who? Catch Phrase? Hive? Count me in. I find it funny that I like riddles, yet I never really challenge myself enough. An iPhone is like a life cheat sheet. Anytime I need to know something I just google it. (I love how google is actually a verb now by the way.) It makes every riddle super easy. Do you see where I am going with this?
+I love riddles. Yes, they are awesome. Guess Who? Catch Phrase? Hive? Count me in. I find it funny that I like riddles, yet I never really challenge myself in the way of a riddle, however maybe we can change that. For example, Smart Phones are a life cheat sheet. Anytime I need to know something I just google it. (I love how google is actually a verb now by the way.) It makes every situation in life super easy. Do you see where I am going with this?
 
 **Riddle of the month: no youtube.**
 
