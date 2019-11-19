@@ -7,12 +7,19 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Tableau Conference 2019
+I just got back from the Tableau Conference in Las Vegas (TC19). There are soo many smart motivational people out there in the world doing great things. I am a HUGE fan of Python, and I loved all the demos I saw that involved Python. Unfortunately, the demos I saw I won't be able replicate due to my coding environment. However it did spark an interest for different ideas I could be trying.
+
+My dream combo is Tableau + Python for data science. Most people use Python to perform everything, but I feel like for beginners Tableau can take on the exploratory analysis part. This would make it really easy to digest small pieces of code in Python, until the analyst has a fully developed coding background.
+
+I also realized that for a department that has an extra laptop but no server, they can automate processes in Python. The coolest part is that you can kick off the script in Tableau (using f5 to refresh the data and running the script). The tableau workbook would be reading a log of when the process completed. A strange use for Tableau. But creative.
+
 ## Do you like riddles?
 I love riddles. Yes, they are awesome. Guess Who? Catch Phrase? Hive? Count me in. I find it funny that I like riddles, yet I never really challenge myself in the way of a riddle, however maybe we can change that. For example, Smart Phones are a life cheat sheet. Anytime I need to know something I just google it. (I love how google is actually a verb now by the way.) It makes every situation in life super easy. Do you see where I am going with this?
 
-**Riddle of the month: no youtube.**
+**Riddle of the week: no youtube.**
 
-Yes, I cannot use youtube this month. Let the riddles begin.
+Yes, I cannot use youtube this week. Let the riddles begin.
 
 ## What do you see?
 
