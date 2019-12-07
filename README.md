@@ -10,6 +10,8 @@ I graduated from the University of Texas at Austin in Pure Mathematics. I like t
 ## Short and Sweet
 The YouTube challenge was tough, but it made me more focused. Also, loneliness is a good thing in life; it provides us with the urge to need others.
 
+What if my life is just starting?
+
 ## Tableau Conference 2019
 I just got back from the Tableau Conference in Las Vegas (TC19). There are soo many smart motivational people out there in the world doing great things. I am a HUGE fan of Python, and I loved all the demos I saw that involved Python. Unfortunately, the demos I saw I won't be able replicate due to my coding environment. However it did spark an interest for different ideas I could be trying.
 
