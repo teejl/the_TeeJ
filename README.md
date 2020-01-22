@@ -7,6 +7,9 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just an average person trying to solve every puzzle that catches my interest. I guess some can say "average" is very subjective. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Fight
+"All my life I had to fight." Kendrick Lamar. I just want to say this is the best outlook to life. Always wanting more, not accepting what others see as the standard.
+
 ## Short and Sweet
 The YouTube challenge was tough, but it made me more focused. Also, loneliness is a good thing in life; it provides us with the urge to need others.
 
