@@ -1,5 +1,10 @@
 # About TeeJ
 
+## Now.
+"There is no time like the present."
+
+Everyone is a writer, are they not? Or do they not live a story? What is a life without a story? There is no life like the present. There is no time like the present. Here. Now. Live.
+
 ## Hello world. 
 "A penny saved is a penny earned."
 
