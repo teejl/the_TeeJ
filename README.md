@@ -1,5 +1,16 @@
 # About TeeJ
 
+## Gone.
+"She never knew a stranger."
+
+November 17th 2020, my Aunt Kathy passed away. It sucked. She was my gaurdian angel, and the glue that brought my family together (and some non family as well). She took countless number of photos of other people, sometimes not being in the pictures herself. If it wasn't for her photos I wouldn't have known as much about my parents or aunt. She was also known to brighten up the room. She made strangers feel welcomed. She never knew a stranger. She was such a remarkable person, and I hope to hold just a fraction of her southern hospitality.
+
+What I have learned through this is that death brings sadness. It is tough to carry this sadness. It feels like someone poked my heart with a thousand needles and put a 5 lb weight on it. However, death also brings people together. I have not fealt so connected with my family. My loss also makes me realize some of the things I have taken for granted. There are so many iconic people in my life that have some of the best qualities.
+
+I am blessed to have had all the memories I have had with her: from the first day of school to graduation; my first gameboy; countless number of extended hugs; the neverlong battle over the bill; losing the everlong battle over the bill. I wish she could have been at my wedding to give me advice. I wish I could have taken care of her when she got old. I will forever be in debt to her beautiful soul.
+
+If you are reading this I challenge you to reach out to someone you care about. Just say hi and listen what they have to say. Share Aunt Kathy's love for me.
+
 ## Now.
 "There is no time like the present."
 
