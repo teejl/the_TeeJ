@@ -1,15 +1,11 @@
 # About TeeJ
 
-## Gone.
-"She never knew a stranger."
+## School.
+"The road to hell is paved with good intentions" Fear and Faith.
 
-November 17th 2020, my Aunt Kathy passed away. It sucked. She was my gaurdian angel, and the glue that brought my family together (and some non family as well). She took countless number of photos of other people, sometimes not being in the pictures herself. If it wasn't for her photos, I wouldn't have known as much about my parents or aunt. She was also known to brighten up the room. She made strangers feel welcomed. She never knew a stranger. She was such a remarkable person, and I hope to hold just a fraction of her southern hospitality.
+Sometimes we thing we are doing good things when really we are hurting others or ourselves. How can we possibly know what is good and evil; what is right or wrong? We might never know. One thing I do know is that school gives me purpose. It gives me something to be apart of, and I don't feel shy opening up when it comes to learning. I am very fortunate to be able to learn.
 
-What I have learned through this is that death brings sadness. It is tough to carry this sadness. It hits in waves and when it does it feels like someone poking your heart with a thousand needles and putting a 5 lb weight on it. However, death also brings people together. I have not fealt so connected with my family. My loss also makes me realize some of the things I have taken for granted. There are so many iconic people in my life that have some of the best qualities.
-
-I am blessed to have had all the memories I have had with her: from the first day of school to graduation; my first gameboy; countless number of extended hugs; the neverlong battle over the bill; losing the everlong battle over the bill. I wish she could have been at my wedding to give me advice. I wish I could have taken care of her when she got old. I will forever be in debt to her beautiful soul.
-
-If you are reading this I challenge you to reach out to someone you care about. Just say hi and listen what they have to say. Share a little piece of Aunt Kathy's love for me.
+On the other note, there is a different type of learning when it comes to skateboard. By the way I have been skateboarding alot. The type of learning is conquering one's fears. A much more difficult type of learning than reading a book. It is interesting on the different ways we can challenge ourselves.
 
 ## Now.
 "There is no time like the present."
@@ -22,6 +18,17 @@ Everyone is a writer, are they not? Or do they not live a story? What is a life 
 My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me a name like TeeJ, but they did give me the tools to get there. Sometimes I like to think I'm the only one in the world that goes by a name like TeeJ. If that was the case then my name's uniqueness would guarantee my awesomeness. 
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
+
+## Gone.
+"She never knew a stranger."
+
+November 17th 2020, my Aunt Kathy passed away. It sucked. She was my gaurdian angel, and the glue that brought my family together (and some non family as well). She took countless number of photos of other people, sometimes not being in the pictures herself. If it wasn't for her photos, I wouldn't have known as much about my parents or aunt. She was also known to brighten up the room. She made strangers feel welcomed. She never knew a stranger. She was such a remarkable person, and I hope to hold just a fraction of her southern hospitality.
+
+What I have learned through this is that death brings sadness. It is tough to carry this sadness. It hits in waves and when it does it feels like someone poking your heart with a thousand needles and putting a 5 lb weight on it. However, death also brings people together. I have not fealt so connected with my family. My loss also makes me realize some of the things I have taken for granted. There are so many iconic people in my life that have some of the best qualities.
+
+I am blessed to have had all the memories I have had with her: from the first day of school to graduation; my first gameboy; countless number of extended hugs; the neverlong battle over the bill; losing the everlong battle over the bill. I wish she could have been at my wedding to give me advice. I wish I could have taken care of her when she got old. I will forever be in debt to her beautiful soul.
+
+If you are reading this I challenge you to reach out to someone you care about. Just say hi and listen what they have to say. Share a little piece of Aunt Kathy's love for me.
 
 ## Fight
 "All my life I had to fight." Kendrick Lamar. I just want to say this is the best outlook to life. Always wanting more, not accepting what others see as the standard.
