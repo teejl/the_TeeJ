@@ -1,5 +1,10 @@
 # About TeeJ
 
+## Transparent
+"We pretended we were okay." Marshmello ft. Bastille - Happier
+
+It baffles me how some people can put up walls. Walls that prevent them from showing honesty and true candid character. Or maybe I can... I can be the worst at it. So maybe this is just a message to myself. I encourage you to break down that wall. Try not to be afraid to speak how you feel or crack a joke. Especially strangers. Life is too short. Great relationships are built through candid conversations.
+
 ## School.
 "The road to hell is paved with good intentions" Fear and Faith.
 
