@@ -1,22 +1,5 @@
 # About TeeJ
 
-## Transparent
-"We pretended we were okay." Marshmello ft. Bastille - Happier
-
-It baffles me how some people can put up walls. Walls that prevent them from showing honesty and true candid character. Or maybe I can... I can be the worst at it. So maybe this is just a message to myself. I encourage you to break down that wall. Try not to be afraid to speak how you feel or crack a joke. Especially strangers. Life is too short. Great relationships are built through candid conversations.
-
-## School.
-"The road to hell is paved with good intentions" Fear and Faith.
-
-Sometimes we thing we are doing good things when really we are hurting others or ourselves. How can we possibly know what is good and evil; what is right or wrong? We might never know. One thing I do know is that school gives me purpose. It gives me something to be apart of, and I don't feel shy opening up when it comes to learning. I am very fortunate to be able to learn.
-
-On the other note, there is a different type of learning when it comes to skateboard. By the way I have been skateboarding alot. The type of learning is conquering one's fears. A much more difficult type of learning than reading a book. It is interesting on the different ways we can challenge ourselves.
-
-## Now.
-"There is no time like the present."
-
-Everyone is a writer, are they not? Or do they not live a story? What is a life without a story? There is no life like the present. There is no time like the present. Here. Now. Live.
-
 ## Hello world. 
 "A penny saved is a penny earned."
 
@@ -24,10 +7,27 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Transparent
+"We pretended we were okay." Marshmello ft. Bastille - Happier
+
+It baffles me how some people can put up walls. Walls that prevent them from showing honesty and true candid character. I can be the worst at it. So maybe this is just a message to myself. I encourage you to break down that wall. Try not to be afraid to speak how you feel or crack a joke. Especially strangers. Life is too short. Great relationships are built through candid conversations.
+
+## School.
+"The road to hell is paved with good intentions" Fear and Faith.
+
+Sometimes we think we are doing good things when really we are hurting others or ourselves. How can we possibly know what is good and evil; what is right or wrong? We might never know. One thing I do know is that school gives me purpose. It gives me something to be apart of, and I don't feel shy opening up when it comes to learning. I am very fortunate to be able to learn.
+
+On the other note, there is a different type of learning when it comes to skateboarding. By the way, I have been skateboarding alot. The type of learning when it comes to skateboarding is conquering fear. A much more different type of learning than reading a book. It is interesting on the different ways we can challenge ourselves.
+
+## Now.
+"There is no time like the present."
+
+Everyone is a writer, are they not? Or do they not live a story? What is a life without a story? There is no life like the present. There is no time like the present. Here. Now. Live.
+
 ## Gone.
 "She never knew a stranger."
 
-November 17th 2020, my Aunt Kathy passed away. It sucked. She was my gaurdian angel, and the glue that brought my family together (and some non family as well). She took countless number of photos of other people, sometimes not being in the pictures herself. If it wasn't for her photos, I wouldn't have known as much about my parents or aunt. She was also known to brighten up the room. She made strangers feel welcomed. She never knew a stranger. She was such a remarkable person, and I hope to hold just a fraction of her southern hospitality.
+November 17th 2020, my Aunt Kathy passed away. It sucked. She was my gaurdian angel, and the glue that brought my family together (and some non family as well). She took countless number of photos of other people, sometimes not being in the pictures herself. If it wasn't for her photos, I wouldn't have known as much about my parents or aunt. She was also known to brighten up the room. She made strangers feel welcomed. That's why we say she never knew a stranger. A truly remarkable person, and I hope to hold just a fraction of her southern hospitality.
 
 What I have learned through this is that death brings sadness. It is tough to carry this sadness. It hits in waves and when it does it feels like someone poking your heart with a thousand needles and putting a 5 lb weight on it. However, death also brings people together. I have not fealt so connected with my family. My loss also makes me realize some of the things I have taken for granted. There are so many iconic people in my life that have some of the best qualities.
 
