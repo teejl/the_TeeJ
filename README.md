@@ -7,6 +7,9 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Right
+Sometimes its not about who is right, but instead about making sure everyone is heard. On top of listening persistence can be a powerful tool. When people see your face and have fun around you, great things can happen. I encourage you to invite someone (or even a group of people) to do something.
+
 ## Transparent
 "We pretended we were okay." Marshmello ft. Bastille - Happier
 
