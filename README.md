@@ -12,6 +12,9 @@ I have finished two semesters in my Online Masters of Computer Science at Georgi
 
 We live in the Era of Data. Everything we do is measured or influenced by it. 
 
+## A Thought on Excitement
+Simpoly knowing when to be excited and when to be calm can help you get respect.
+
 ## Right
 Sometimes its not about who is right, but instead about making sure everyone is heard. On top of listening persistence can be a powerful tool. When people see your face and have fun around you, great things can happen. I encourage you to invite someone (or even a group of people) to do something.
 
