@@ -12,6 +12,11 @@ I have finished two semesters in my Online Masters of Computer Science at Georgi
 
 We live in the Era of Data. Everything we do is measured or influenced by it. 
 
+## Burritos
+"You can't rush perfection." - One of my close friends.
+
+When I am waiting in line on a burrito there is only one thing I care about. Quality. If my burrito is leaking juice all over my shirt, then the time spent in line was a waste of time.
+
 ## A Thought on Excitement
 Simply knowing when to be excited and when to be calm can help you get respect.
 
