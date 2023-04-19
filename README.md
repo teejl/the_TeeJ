@@ -7,8 +7,28 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Hackers
+"There is no patch for stupidity." -Kevin Mitnick
+
+Whenever I was in college, I read a book called "Ghost in the Wires" by Kevin Mitnick. Little did I know this would put a seed in my head of the power of curiousity and computers. As I have been working through more courses at Georgia Tech (OMSCS), I keep finding myself signing up for Cyber Security courses. Network Security, Information Security, and soon to come the Security Labs. Each project offered from these courses are extremely entertaining. I would be very intersted in transitioning my career into Cyber Security. It has even inspired the thought of my next tattoo.
+
+Still undecided but this is what I have so far (IYKYK):
+
+0x000049662049
+0x20746f6c6420
+0x796f75207468
+0x617420612066
+0x6c6f77657220
+0x626c6f6f6d65
+0x6420696e2061
+0x206461726b20
+0x726f6f6d2077
+0x6f756c642079
+0x6f7520747275
+0x73742069743f
+
 ## Silent Leadership
-"If I told you that a flower bloomed in a dark room would you trust it?" - Kendrick Lamar
+"If I told you that a flower bloomed in a dark room, would you trust it?" - Kendrick Lamar
 
 I have been thinking about leadership alot lately. I think this comes from switching my career from data engineering in supply chain planning to data engineering in manufacturing. Leaderhsip is a big deal in manufacturing, since so many decisions are being made all of the time. Everyone is looking for a direction. Everyone is carving their own path.
 
