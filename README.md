@@ -7,6 +7,13 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Silent Leadership
+"If I told you that a flower bloomed in a dark room would you trust it?" - Kendrick Lamar
+
+I have been thinking about leadership alot lately. I think this comes from switching my career from data engineering in supply chain planning to data engineering in manufacturing. Leaderhsip is a big deal in manufacturing, since so many decisions are being made all of the time. Everyone is looking for a direction. Everyone is carving their own path.
+
+One of my strengths has always been leading by example. However, a good leader doesn't want to spotlight as much as to give it to the people who deserve it. Although silence is a powerful tool, it is at times a weakness. Mastering this tool is something I would like to focus on. Gaining respect through contribution, and support others around me through listening and, if needed, shot calling. A silent leader. Not shy, not passive, but silent. Knowing when to strike, and striking with full confidence. Giving everyone the opportunity to contribute, and filling in the missing gaps. The caboose.
+
 ## Data Engineer
 I have finished two semesters in my Online Masters of Computer Science at Georgia Tech. I love the way technology works, especially when it comes to data. I aim to be a data engineer. There is alot that goes into building a reliable, maintanable, and scalable data system. Also there is always something that can be improved for every data system. A fun fact, the efficiency of computers is actually bottlenecks by the speed at which data can be stored, written, and read. 
 
