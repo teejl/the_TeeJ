@@ -7,10 +7,17 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Learn from the Market
+"Even a broken clock is right twice a day"
+
+Stocks prices have what are called candles. These candles are built by the open, close, high, and low price of some time frame. The green or red color indicates whether the candle ended with a higher close or lower close than the open, respectively.
+
+I feel like it somewhat shadows human emotions and characters. Some days are red candles. Some days are green candles. Just becuase your day starts off as a red candle doesn't mean it can't eventually turn green. 
+
 ## Day Dreaming
 "Seize the moment" -An Idiom according to a Google search.
 
-I like to think we are all writers. We want to live, follow, or be apart of something that we find interesting. My story has been part-time trading and school. It gives me hope. Hope that one day I can retire in a cabin in the woods with two dogs that are built to run fast just like myself. Near this cabin I'm hoping there is a lake, a boat even, and a nice truck I can drive around. Oh yeah, and I can't forget the camper that I can pull around so that I can explore the world. 
+I like to think we are all writers. We want to live, follow, or be apart of something that we find interesting. My story has been part-time trading and school. It gives me hope. Hope that one day I can retire in a cabin in the woods with two dogs that are built to run fast just like myself. Near this cabin, I'm hoping there is a lake, a boat even, and a nice truck I can drive around. Oh yeah, and I can't forget the camper that I can pull around so that I can explore the world. A peaceful place for my family to visit.
 
 Will my dreams come true? Doesn't really matter. All that matters is that I have the ability to fantasize about it. Most of the time when things don't go according to my plan, it turns out to be even better than I'd imagined. It's the story in my head that matters. The peace, quiet, and adventure that comes with the dream.
 
