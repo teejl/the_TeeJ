@@ -7,12 +7,19 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Day Dreaming
+"Seize the moment" -An Idiom according to a Google search.
+
+I like to think we are all writers. We want to live, follow, or be apart of something that we find interesting. My story has been part-time trading and school. It gives me hope. Hope that one day I can retire in a cabin in the woods with two dogs that are built to run fast just like myself. Near this cabin I'm hoping there is a lake, a boat even, and a nice truck I can drive around. Oh yeah, and I can't forget the camper that I can pull around so that I can explore the world. 
+
+Will my dreams come true? Doesn't really matter. All that matters is that I have the ability to fantasize about it. Most of the time when things don't go according to my plan, it turns out to be even better than I'd imagined. It's the story in my head that matters. The peace, quiet, and adventure that comes with the dream.
+
 ## Hackers
 "There is no patch for stupidity." -Kevin Mitnick
 
-Whenever I was in college, I read a book called "Ghost in the Wires" by Kevin Mitnick. Little did I know this would put a seed in my head of the power of curiousity and computers. As I have been working through more courses at Georgia Tech (OMSCS), I keep finding myself signing up for Cyber Security courses. Network Security, Information Security, and soon to come the Security Labs. Each project offered from these courses are extremely entertaining. I would be very intersted in transitioning my career into Cyber Security. It has even inspired the thought of my next tattoo.
+Whenever I was in college, I read a book called "Ghost in the Wires" by Kevin Mitnick. Little did I know this would put a seed in my head of the power of curiousity and computers. As I have been working through more courses at Georgia Tech (OMSCS), I keep finding myself signing up for Cyber Security courses. Network Security, Information Security, and soon to come the Security Labs. Each project offered from these courses are extremely entertaining. 
 
-Still undecided but this is what I have so far (IYKYK):
+Potential Tattoo Idea (IYKYK):
 
 0x000049662049
 0x20746f6c6420
@@ -30,9 +37,11 @@ Still undecided but this is what I have so far (IYKYK):
 ## Silent Leadership
 "If I told you that a flower bloomed in a dark room, would you trust it?" - Kendrick Lamar
 
-I have been thinking about leadership alot lately. I think this comes from switching my career from data engineering in supply chain planning to data engineering in manufacturing. Leaderhsip is a big deal in manufacturing, since so many decisions are being made all of the time. Everyone is looking for a direction. Everyone is carving their own path.
+I have been thinking about leadership alot lately. I think this comes from switching my career from data engineering in supply chain planning to data engineering in manufacturing. Leaderhsip is a big deal in manufacturing, since so many decisions are being made, frequently. Everyone is looking for a direction. Everyone is carving their own path.
 
-One of my strengths has always been leading by example. However, a good leader doesn't want to spotlight as much as to give it to the people who deserve it. Although silence is a powerful tool, it is at times a weakness. Mastering this tool is something I would like to focus on. Gaining respect through contribution, and support others around me through listening and, if needed, shot calling. A silent leader. Not shy, not passive, but silent. Knowing when to strike, and striking with full confidence. Giving everyone the opportunity to contribute, and filling in the missing gaps. The caboose.
+One of my strengths has always been leading by example. However, a good leader doesn't want to spotlight as much as to give it to the people who deserve it. Although silence is a powerful tool, it is also at times a weakness. Mastering this tool is something I would like to focus on. Gaining respect through contribution, and support others around me through listening and, if needed, shot calling. A silent leader. Not shy, not passive, but silent. Knowing when to strike, and striking with full confidence. Giving everyone the opportunity to contribute, and filling in the missing gaps. The caboose.
+
+On the contrary, it is a leaders job to give an overall objective and purpose for the work that is being done. Without a direction or overall purpose the silent leadership is useless. This is the benefit of being in charge.
 
 ## Data Engineer
 I have finished two semesters in my Online Masters of Computer Science at Georgia Tech. I love the way technology works, especially when it comes to data. I aim to be a data engineer. There is alot that goes into building a reliable, maintanable, and scalable data system. Also there is always something that can be improved for every data system. A fun fact, the efficiency of computers is actually bottlenecks by the speed at which data can be stored, written, and read. 
@@ -42,7 +51,7 @@ We live in the Era of Data. Everything we do is measured or influenced by it.
 ## Burritos
 "You can't rush perfection." - One of my close friends.
 
-When I am waiting in line on a burrito there is only one thing I care about. Quality. If my burrito is leaking juice all over my shirt, then the time spent in line was a waste of time.
+When I am waiting in line on a burrito there is only one thing I care about. Quality. If my burrito is leaking juice all over my shirt, then every minute spent in line was a waste of time.
 
 ## A Thought on Excitement
 Simply knowing when to be excited and when to be calm can help you get respect.
@@ -60,7 +69,7 @@ It baffles me how some people can put up walls. Walls that prevent them from sho
 
 Sometimes we think we are doing good things when really we are hurting others or ourselves. How can we possibly know what is good and evil; what is right or wrong? We might never know. One thing I do know is that school gives me purpose. It gives me something to be apart of, and I don't feel shy opening up when it comes to learning. I am very fortunate to be able to learn.
 
-On the other note, there is a different type of learning when it comes to skateboarding. By the way, I have been skateboarding alot. The type of learning when it comes to skateboarding is conquering fear. A much more different type of learning than reading a book. It is interesting on the different ways we can challenge ourselves.
+On the other note, there is a different type of learning when it comes to skateboarding. By the way, I have been skateboarding alot. The type of learning when it comes to skateboarding is conquering fear. It is interesting on the different ways we can challenge ourselves.
 
 ## Now.
 "There is no time like the present."
