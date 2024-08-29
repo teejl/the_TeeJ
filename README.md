@@ -7,6 +7,15 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## A Tip for Succcess
+"Success is a journey, not a destination."
+
+If you want to be "successful" I'd recommend working out in the morning. It is life changing. Just do it, and you'll understand.
+
+The way I look at success is constantly changing. At first success to me was status, money, and power. Not necessarily what I am wearing, but achievements. I don't see it that way anymore.
+
+I now see success as my relationship with my experiences. Being able to make the right decisions to make my life balanced. Choosing my priorities is what determines what decisions I make. And ultimately, the experience I get is the outcome of my decisions. Success is a balance of priorities and experiences. It's a journey, not a destination.
+
 ## Be Calm
 "Heavy is the head that wieghs the crown."
 
