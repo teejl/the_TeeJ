@@ -7,6 +7,15 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Be Calm
+"Heavy is the head that wieghs the crown."
+
+I previously mentioned about silent leadership. I think I was wrong about that. Although it is possible, it is not probable to be a good leader by being silent. Calm and confident is more accurate. A leader needs to be the first to step up. The first to face fear. A leader should set an example. The Jack of all trades that is empowered by the people that support one shared vision. And ultimately the voice. The one who steps up. The one who helps others step up.
+
+On a side note, I notice people sit back while others are struggling around them. I am guilty of this myself. I often at times think "not my problem", but sometimes lending a hand can make all of the difference. We are people at the end of the day, and although we can do it alone doesn't mean we have to.
+
+Another side note, people CAN change. I beleive sometimes people think the have "figured" someone out. Or even worse, assume a reaction that hasn't even happened yet. It's nonsense! That person will change. Their beleifs; their interests; their tastes. Who can really figure out change? Are you the same person you were 5 years ago? 
+
 ## Learn from the Market
 "Even a broken clock is right twice a day"
 
