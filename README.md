@@ -7,6 +7,17 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Brainwashed
+"We become the people we are surrounded by."
+
+Something just dawned on me, we are brainwashed by society. For example, whenever you are a kid your favorite foods will be decided by only the things you've tried. Although this seems very subtle, I beleive this cascades into a huge part of our life.
+
+The nature vs nuture is a debate. Often at times I realize how I am a biproduct of my upbringing. The things I find interesting, the people I find that are attractive, the entertainment I indulge in, and what I find to be sociallly acceptable. This mindset becomes more noticeable as I get older and move away from where I was raised.
+
+Also our environments can mean everything. In one environment I can be a superstar, yet another a complete dumbass.
+
+Would you rather be a genius and feel like an idoit or a idoit and feel like your a genius?
+
 ## A Tip for Succcess
 "Success is a journey, not a destination."
 
