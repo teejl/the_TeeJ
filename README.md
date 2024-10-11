@@ -9,7 +9,7 @@ I graduated from the University of Texas at Austin in Pure Mathematics. I like t
 
 ## The Power of Commitment
 
-I want to build the skill to sell an idea so strong that truth cannot even deny it. Sell an idea that gives people purpose. An idea that is rich and valuable at it's core. An idea that can seem to change the people around. An idea that fosters a culture of purpose and collaboration. 
+I want to build the skill to sell an idea so strong that truth cannot even deny it. An idea that is rich and valuable at it's core. An idea that fosters a culture of purpose and collaboration. 
 
 ## Brainwashed
 "We become the people we are surrounded by."
