@@ -18,6 +18,8 @@ Planning goes hand in hand with thinking. I overthink everything. The moment is 
 
 I want to build the skill to sell an idea so strong that truth cannot even deny it. An idea that is rich and valuable at it's core. An idea that fosters a culture of purpose and collaboration. 
 
+Often at times we find ourselves in what is called the "Valley of Despair". It's the lowest moment in commitment where you question yourself. The feeling of not being able to finish something you started. If only you could see the otherside of the finish line at this moment to reassure yourself that all of the effort is worth it. That everything is going to pay off or will be a complete waste of time. The is the ultimate risk of commitment; the effort will result in something of value.
+
 ## Brainwashed
 "We become the people we are surrounded by."
 
