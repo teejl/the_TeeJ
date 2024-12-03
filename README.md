@@ -7,6 +7,13 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Planning
+"Focus is the most important thing for succcess. The moment is the most important thing for balance."
+
+A good plan can save time, effort, and money. But planning is a tricky thing. Does anything ever go according to the plan? What value does planning out our life give us? Not all planning is good. Not planning anything out is not good either!
+
+Planning goes hand in hand with thinking. I overthink everything. The moment is the most important thing in life, and thinking takes away the moment. Thinking is the training wheels to life. It helps us go forward without falling down. The downside is that we could be biking the wrong direction.
+
 ## The Power of Commitment
 
 I want to build the skill to sell an idea so strong that truth cannot even deny it. An idea that is rich and valuable at it's core. An idea that fosters a culture of purpose and collaboration. 
