@@ -10,7 +10,7 @@ I graduated from the University of Texas at Austin in Pure Mathematics. I like t
 ## Planning
 "Focus is the most important thing for succcess. The moment is the most important thing for balance."
 
-A good plan can save time, effort, and money. But planning is a tricky thing. Does anything ever go according to the plan? What value does planning out our life give us? Not all planning is good. No planning is not good either! It requires a balance.
+A good plan can save time, effort, and money. But planning is a tricky thing. Does anything ever go according to the plan? What value does planning out our life give us? Not all planning is good. It requires balance.
 
 Planning goes hand in hand with thinking. I overthink everything. The moment is the most important thing in life, and thinking takes away the moment. Thinking is the training wheels to life. It helps us go forward without falling down. The downside is that we could be biking the wrong direction.
 
