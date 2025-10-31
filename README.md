@@ -7,6 +7,19 @@ My name is TeeJ. Yes it is a nickname. My parents weren't cool enough to give me
 
 I graduated from the University of Texas at Austin in Pure Mathematics. I like to think of myself as a mathematician just as all the old geezers did. However my contribution as a mathematician isn't like the typical professor type of mathematician. Those mathematicians directly contribute by writing papers, while I am simply a soldier on the front lines. I swing away at problems in my path via calculator, computer, or good ole paper. I am just your everyday man trying to solve every puzzle that catches my interest. Nonetheless, I love solving puzzles in anyway I can. When you break everything down that is who I am, a problem solver. A TeeJ.
 
+## Stress and Life
+"Sometimes the most productive thing you can do is relax" - Random Photo from Google
+
+I have been getting my masters at OMSCS (competitively ranked school) for computer science. It has been one class after another, and I've been doing this on top of a full time job. It makes my life REALLY stressful at times. 
+
+Whenever I first started taking the cyber courses (the best courses), they were manageable. I could complete the assignment and spend the rest of the weekend enjoying myself... Then they started to get more difficult. Each task required more out of me, which meant more hours into finishing it. I am now at the point where I could put an unlimited amount of time learning. There is literally an endless amount of work! My reaction to this endless amount of work started with obsession, fueled by the sweet ego boost of finishing an assignment. The feeling of genius; the satisfaction being smart and capable. The challenges became harder, and this sensation I get from finishing them became more consuming.
+
+It is starting to become who I am. And if I can admit, I have this feeling of fear. I fear that after it's over I am going to be bored. The eager rush to solve each problem will be gone. The willpower to push myself beyond what I thought I was capable of, and yet still feeling like it's not enough. A sensation of learning more than I could imagine, yet wishing I could have done more. I know I will feel like I lost a part of me; the edge that made me feel unique.
+
+However, this sweet genius ego feeling has made me forget what it's like to be a person. I have neglected my humanity. I stopped working out. Stopped having time for my friends, wife, dog, or hobbies. What has helped me at times like this is taking a step back and recharging. Caring about myself. Taking a day off. I am a human after all! We need certain things to feel complete. Learning is a marathon, not a sprint. Life is a marathon, not a sprint. I have to remind myself who I am outside of school, and watch the leaves fall.
+
+Happy Halloween.
+
 ## Planning
 "Focus is the most important thing for succcess. The moment is the most important thing for balance."
 
